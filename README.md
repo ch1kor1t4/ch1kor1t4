@@ -1,5 +1,16 @@
 ### Hi there 👋
 
+*Thx for visiting* 😄
+
+I´m just an enthusiastic dude who works in the cybersecurity field. I know a lil bit of stuff which I wanna share it 💙
+
+📍 I’m currently working on document my repositories so pls wait a bit more til I upload my stuff.
+
+🌱 I’m currently learning about ethical hacking, my porpuse is to improve my skills and let´s see where does it take me.
+
+
+
+
 <!--
 **ch1kor1t4/ch1kor1t4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
