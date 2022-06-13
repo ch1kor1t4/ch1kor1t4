@@ -4,9 +4,9 @@
 
 I´m just an enthusiastic dude who works in the cybersecurity field. I know a lil bit of stuff which I wanna share it 💙
 
-📍 I’m currently working on document my repositories so pls wait a bit more til I upload my stuff.
+📍 I’m working on document my repositories so pls wait a bit more til I upload my stuff.
 
-🌱 I’m currently learning about ethical hacking, my purpose is to improve my skills and let´s see where does it take me.
+🌱 Currently I’m learning about ethical hacking, my purpose is to improve my skills and let´s see where does it take me.
 
 
 
